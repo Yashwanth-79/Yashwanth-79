@@ -10,7 +10,6 @@ I am a passionate AI enthusiast with a focus on **Artificial Intelligence**, esp
 
 📧 **[yashwanthsince2004@gmail.com](mailto:yashwanthsince2004@gmail.com)**
 
-📄 **[Download My Resume](https://docs.google.com/document/d/16Zb9Fq7CrKeeHi5QSBL0_37CxdaQD_4zGOcYaqKu9rA/edit?usp=sharing)**
 
 # 🌐 Connect with me:
 
